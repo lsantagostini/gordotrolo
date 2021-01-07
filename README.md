@@ -2,4 +2,4 @@
 
 gordotroloooo
 
-chorizo
+chorizo vegano
